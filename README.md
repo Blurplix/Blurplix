@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Blurplix
+- 👀 I’m interested in Discord!
+- 📫 Add me on Discord. My username is Blurplix#4554
