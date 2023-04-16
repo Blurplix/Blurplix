@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @Blurplix
 - 👀 I’m interested in Discord!
 - 📫 Join my Discord server: https://discord.gg/quyKbj3hAZ
+- 🔗 Make sure to have a look at my Discord profile: https://discord.com/users/738794009933119559
